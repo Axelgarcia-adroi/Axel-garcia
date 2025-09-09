@@ -1,2 +1,3 @@
-Me encantas mi corazon❤️😋 eres  facinante 
+Me encantas mi corazon❤️😋 eres  encantadora
 
+ te amo
